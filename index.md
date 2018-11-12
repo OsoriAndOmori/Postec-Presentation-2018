@@ -12,7 +12,7 @@
 **공부방법, 느꼈던 현실, 그냥 가지고 있는 생각들.**
 
 
-## 3. 대학교 시절 & 취업을 하자~(짧게 끝내기 - 3분~)
+## 3. 대학교 시절 & 취업을 하자~
 ![collage](https://user-images.githubusercontent.com/22016317/48327470-56ba7f80-e682-11e8-9e90-804426d16db6.png)
 ![2018-11-12 1 56 42-side](https://user-images.githubusercontent.com/22016317/48327621-fa0b9480-e682-11e8-9cb9-73f91cdede2e.png)
 
